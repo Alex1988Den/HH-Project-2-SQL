@@ -8,3 +8,10 @@
         4)анализ работодателей;
         5)предметный анализ.
 
+Контакты
+
+Если у вас возникли вопросы по проекту или его выполнению, вы можете связаться с нами:
+
+    Email: aleksandr.denissov@brave.ee
+    
+[Скачать файл с данными с Google Диска]https://drive.google.com/file/d/1CNNakCI_B4v6iOrso_jSFLGKVNeh_rwE/view?usp=sharing
