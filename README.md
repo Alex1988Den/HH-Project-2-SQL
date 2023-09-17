@@ -14,4 +14,4 @@
 
     Email: aleksandr.denissov@brave.ee
     
-[Скачать файл с данными с Google Диска]https://drive.google.com/file/d/1CNNakCI_B4v6iOrso_jSFLGKVNeh_rwE/view?usp=sharing
+[Скачать файл с данными с Google Диска]https://drive.google.com/file/d/1enulUrWf9VJm-waIrpRO-Ah37vbZ4csR/view?usp=drive_link
